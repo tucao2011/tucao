@@ -1,18 +1,18 @@
 <h2>吐槽弹幕网~最新域名</h2>
                  https://www.tucao.my<br />
-                 https://www.tucao10.com (备用)<br /><br />
+                 https://www.tucao7.com (备用)<br /><br />
 
 
 <hr />
 
 <br /><h2>吐槽弹幕网~APP下载（防丢）</h2>
-                 https://www.tucaoapp.top<br /><br />
+                 https://www.tucao.app<br /><br />
 
 <hr />
 
 <br /><h2>吐槽弹幕网~发布页（防丢）</h2>
                  https://www.tucao.moe<br />
-                 https://www.tucao2011.top<br /><br />
+                 https://www.tucao9.com<br /><br />
 
 <hr />
 
